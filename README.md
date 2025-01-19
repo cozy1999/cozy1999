@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... online selling
 - 🌱 I’m currently learning ... online sales
 - 💞️ I’m looking to collaborate on ... online sales
-- 📫 How to reach me ... Now, from the standpoint of starting online sales, I want you to process the information in the way I want with the latest information in the applicable terms
+- 📫 How to reach me ... Now, from the standpoint of starting online sales, I want you to process the information in the way I want with the latest information in the applicable terms Isn't it this? e-mail : cozy.com.1999@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
